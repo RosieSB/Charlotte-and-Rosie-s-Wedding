@@ -1,6 +1,6 @@
 # Charlotte and Rosie's Wedding
 
-On these pages you will hopefully find all the information you need about the day
+On these pages you will hopefully find all the information you need about the day.
 
 We hope you can make it!
 
