@@ -1,14 +1,13 @@
 # Accessibility information
 
-The venue is wheel chair accessible and has a lift.
+The venue is wheelchair accessible and has a lift.
 
 Find out about hearing loop!
 
-There will be a quiet room for anyone wanting a break. 
+Toilets? Baby changing?
 
-Another smallish room will have toys and games, at least of which may interest children.
+There will be a quiet room for anyone needing a break from busy socialising.
 
-Baby changing? Breast feeding?
+Another smallish room will have toys and games, at least some of which may interest children.
 
-Toilets?
-
+Breastfeeding is welcome anywhere at the venue.
